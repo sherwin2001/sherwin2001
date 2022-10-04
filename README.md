@@ -4,6 +4,7 @@
 👨‍💻 Currently working as Audit Executive - Information Technology (Management Trainee) at IDFC FIRST Bank.  
 💞️ I’m looking to collaborate on multiple projects based on Analytics and AI.  
 
-📫 Feel free to reach me:
+📫 Feel free to connect with me:
 - Email: mathiassherwinn@gmail.com  
 - Mobile No.: 8999471676
+- LinkedIn: https://www.linkedin.com/in/sherwin-mathias/
