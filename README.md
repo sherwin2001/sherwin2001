@@ -7,4 +7,4 @@
 📫 Feel free to connect with me:
 - Email: mathiassherwinn@gmail.com  
 - Mobile No.: 8999471676
-- LinkedIn: https://www.linkedin.com/in/sherwin-mathias/
+- LinkedIn: https://www.linkedin.com/in/sherwin-mathias
