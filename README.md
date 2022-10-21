@@ -1,8 +1,7 @@
 👋 Hi, I’m @sherwin2001 aka Sherwin Mathias  
-👀 I’m keenly interested in technologies evolving around Data Analytics, AI and ML.  
-🌱 Recently pursued Bachelor of Computer Engineering from SFIT, Mumbai.  
+💞️ I’m passionate about technologies involving Data, Product and AI.  
+🌱 Recently completed Bachelor of Computer Engineering from SFIT, Mumbai.  
 👨‍💻 Currently working as Audit Executive - Information Technology (Management Trainee) at IDFC FIRST Bank.  
-💞️ I’m passionate about Product, Data and AI.  
 
 📫 Feel free to connect with me:
 - Email: mathiassherwinn@gmail.com  
